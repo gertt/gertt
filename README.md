@@ -1,4 +1,4 @@
-[![Linkedin](https://img.shields.io/badge/-Linkedin-blue?style=flat-square0&logo=Linkedin&link=https://www.linkedin.com/in/gertt/)](https://www.linkedin.com/in/gertt/)
+[![Linkedin](https://img.shields.io/badge/-Linkedin-blue?style=flat-square0&logo=Linkedin&link=https://www.linkedin.com/in/gertiprifti/)](https://www.linkedin.com/in/gertiprifti/)
 
 
 <br></br>
